@@ -1,0 +1,2 @@
+# ok
+wedos akeh banget
